@@ -1,2 +1,2 @@
-
-<img width="240" height="20" alt="Image" src="https://github.com/user-attachments/assets/7efb1121-bdeb-4da2-97ac-6f1d0f55cb58" />
+<img width="503" height="609" alt="Image" src="https://github.com/user-attachments/assets/93f54412-21ee-4b84-8cf8-ab9ccbce24e4" />
+I suffer Social Anxiety ! 
